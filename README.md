@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
- - I'm currently learning 生きる方法.
+ - I'm currently trying to clarify my place.
